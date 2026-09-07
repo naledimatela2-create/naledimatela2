@@ -31,7 +31,7 @@
 
 ## Connect With Me
 - Email: naledimatela2@gmail.com  
-- LinkedIn: [your LinkedIn link here]  
+- LinkedIn: www.linkedin.com/in/naledi-matela
 - GitHub: [your GitHub profile link here]  
 
 ---
